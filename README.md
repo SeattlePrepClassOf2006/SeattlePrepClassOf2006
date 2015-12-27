@@ -1,4 +1,4 @@
-# Seattle Prep Class of 2016
+# SeattlePrepClassOf2006
 
 ## Tenth Reunion
 
